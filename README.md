@@ -1,2 +1,2 @@
 # memz-virus
-this is very dangerous to run i will put a link to how to remove it
+I AM NOT RESPONSEBLE FOR ANYTHING THAT HAPPEND TO YOUR COMPUTER,this virus came from dannoct1's veiwer made virus
